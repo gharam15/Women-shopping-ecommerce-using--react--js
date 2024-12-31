@@ -58,5 +58,7 @@ If you have any questions or suggestions, feel free to reach out to me:
 
 
 
-Email: garamahmedmokhtar@gmail.com
-LinkedIn: https://www.linkedin.com/in/ghram-ahmed-mokhtar-680314254
+Email: 
+garamahmedmokhtar@gmail.com
+LinkedIn:
+https://www.linkedin.com/in/ghram-ahmed-mokhtar-680314254
